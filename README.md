@@ -1,1 +1,0 @@
-# nikkourin.github.io
